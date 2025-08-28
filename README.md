@@ -99,4 +99,4 @@ GitHub / Hugging Face: PuruAI/Medini
 
 LinkedIn: linkedin.com/in/purusottam-jana
 
-Email: purusottam.jana@example.com
+Email: purusottamjana2009@gmail.com
